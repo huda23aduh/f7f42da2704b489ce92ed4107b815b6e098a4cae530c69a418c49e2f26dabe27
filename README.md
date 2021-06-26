@@ -1,0 +1,2 @@
+# f7f42da2704b489ce92ed4107b815b6e098a4cae530c69a418c49e2f26dabe27
+magna karsa mulya
